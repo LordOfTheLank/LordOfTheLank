@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @LordOfTheLank
+- 👀 I’m interested in coding and learning and improving many things that interest me
+- 🌱 I’m currently learning many things
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me thurstonduncan42@gmail.com(though i dont chech much this is the best u got)
+- 😄 Pronouns: Bruh im a man
+- ⚡ Fun fact: im a music enthusiasts practically 
